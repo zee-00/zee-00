@@ -5,7 +5,7 @@
 
 - 🌱 Learning **Data Science**
 
-- 📫 How to reach me **zkyafzy123@gmail.com**
+- 📫 How to reach me **zakiya4102@gmail.com**
 
 - 📄 Know about me [https://drive.google.com/file/d/1rrWd3JFT--ysCUhHTFdrnljjjULOcHqY/view?usp=sharing](https://drive.google.com/file/d/1rrWd3JFT--ysCUhHTFdrnljjjULOcHqY/view?usp=sharing)
 
